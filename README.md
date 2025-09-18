@@ -51,3 +51,5 @@ For those looking for privacy, versatility, and a secure darknet marketplace, th
 
 
 *Disclaimer: This article is for informational purposes only. Accessing or engaging with darknet markets may be illegal in your jurisdiction and could involve significant risks. Always use the internet responsibly and within the law.*
+
+Update:  18 September 2025 link updated and working
